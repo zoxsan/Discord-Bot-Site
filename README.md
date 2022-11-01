@@ -7,4 +7,4 @@ My server: https://discord.gg/UW5vfNjTTR
 
 My website: http://zoxsan.ml/
 
-My YouTube: zoxsan
+My YouTube: https://youtube.com/channel/UCR6SS39yuiKGMRv6kkpychQ
